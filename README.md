@@ -1,1 +1,0 @@
-# Th-c-t-p-opentechiz
